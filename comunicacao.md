@@ -66,6 +66,8 @@
 
 #### 3. Observar o seu redor:
 
+"_Antes de falar as coisas observe bem_" - Levi Ramos
+
 <p align="center">
 <img src="http://3.bp.blogspot.com/_irPAqcSaXkk/TAxg1VEDExI/AAAAAAAAAB4/h6K_4I9QMqs/s320/observar+para+aprender.png" width="250"/>
 </p>
@@ -92,7 +94,7 @@
 
 ​	É possível se ter um feedback de qualquer situação, mesmo não vindo de alguém. Basta refletir sobre os acontecidos e buscar por si mesmo os feedbacks. Buscar o que traz beneficio ou não e o que é possível evoluir.
 
-​	Praticar essa cultura rotineiramente trará bons frutos. Feedbacks vem de experiências e essas viram a ser conhecimentos e ensinamentos a ser transmitidos no futuro. Mantendo sempre nossa comunicação ativa e ajudando a sociedade.
+​	Praticar essa cultura rotineiramente trará bons frutos. Feedbacks vem de experiências e essas virão a ser conhecimentos e ensinamentos a ser transmitidos no futuro. Mantendo sempre nossa comunicação ativa e ajudando a sociedade.
 
 
 
@@ -104,7 +106,7 @@
 <img src="http://hinova.com.br/wp-content/uploads/2018/10/planejamentoestrategicogestaoempresarial.jpeg" width="500"/>
 </p>
 
-​	Grandes comunicados, ideias ou uma solução a ser apresentada. Requerem planejamento. Com o treino se adquire confiança e se aprimora as ideias, evitando assim incertezas na hora as expor.
+​	Grandes comunicados, ideias ou uma solução a ser apresentada. Requerem planejamento. Com o treino se adquire confiança e se aprimora as ideias, evitando assim incertezas na hora de expor-las.
 
 ​	Com o tempo isso se tornará natural. Logo os planejamentos se tornaram intrínsecos, como um instinto. Assim melhorando futuras performances.
 
@@ -118,9 +120,9 @@
 <img src="https://i0.wp.com/direcionalescolas.com.br/wp-content/uploads/2018/05/fique-de-olho-diversao-entretenimento.jpg?fit=750%2C406&ssl=1" width="500"/>
 </p>	
 
-​	A ansiedade é a grande vilã em muitas situações onde é preciso comunicar algo importante, ou fazer uma apresentação.  As vezes mesmo planejando surge o famoso "deu um branco" em momentos que se sente sobe pressão.
+​	A ansiedade é a grande vilã em muitas situações onde é preciso comunicar algo importante, ou fazer uma apresentação.  As vezes mesmo planejando surge o famoso "branco" em momentos que se sente sobe pressão.
 
-​	Nesses momentos reflita sobre os motivos que te deixam animado em esta ali, trocando ansiedade por diversão. Já que se preparou para isso, agora é o momento tão esperado, fique feliz e sem vergonha de mostrar seu preparo.
+​	Nesses momentos reflita sobre os motivos que te deixam animado em estar ali, trocando ansiedade por diversão. Já que se preparou para isso, agora é o momento tão esperado, fique feliz e sem vergonha de mostrar seu preparo.
 
 
 
