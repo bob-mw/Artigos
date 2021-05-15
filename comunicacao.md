@@ -6,15 +6,15 @@
 
 **Comunicação:**
 
-​	**"**Comunicação é uma palavra derivada do termo latino **communicare, que significa partilhar, participar algo, tornar comum**.
+​	"Comunicação é uma palavra derivada do termo latino **communicare, que significa partilhar, participar algo, tornar comum**.
 
-​	Através da comunicação, os seres humanos e os animais partilham diferentes **informações entre si,** tornando o ato de comunicar uma atividade essencial para a vida em sociedade. **"**
-
-
+​	Através da comunicação, os seres humanos e os animais partilham diferentes **informações entre si,** tornando o ato de comunicar uma atividade essencial para a vida em sociedade."
 
 
 
-<img src="https://www.ozai.com.br/wp-content/uploads/2019/09/original-e6dc77d1bdb015fd95960c8015b2210d.jpg" width="500"/>
+
+
+<p align="center"><img src="https://www.ozai.com.br/wp-content/uploads/2019/09/original-e6dc77d1bdb015fd95960c8015b2210d.jpg" width="500"/></p>
 
 ​	A comunicação é essencial para passar ensinamentos adiante, costumes familiares usaram disso para se manter por gerações. Assim como costumes de um grupo, a torcida de um time de futebol por exemplo. 
 
