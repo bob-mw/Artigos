@@ -118,9 +118,9 @@
 <img src="https://i0.wp.com/direcionalescolas.com.br/wp-content/uploads/2018/05/fique-de-olho-diversao-entretenimento.jpg?fit=750%2C406&ssl=1" width="500"/>
 </p>	
 
-​	A ansiedade é a grande vilão em muitas situações onde é preciso comunicar algo importante, ou fazer uma apresentação.  As vezes mesmo planejando surge o famoso "deu um branco" em momento que nós sentimos sobe pressão.
+​	A ansiedade é a grande vilã em muitas situações onde é preciso comunicar algo importante, ou fazer uma apresentação.  As vezes mesmo planejando surge o famoso "deu um branco" em momentos que se sente sobe pressão.
 
-​	Nesses momentos reflita sobre os motivos que te deixam animado em esta ali. Trocando ansiedade por diversão. Já que se preparou para isso, agora é o momento tão esperado, fique feliz e sem vergonha de mostrar seu preparo.
+​	Nesses momentos reflita sobre os motivos que te deixam animado em esta ali, trocando ansiedade por diversão. Já que se preparou para isso, agora é o momento tão esperado, fique feliz e sem vergonha de mostrar seu preparo.
 
 
 
