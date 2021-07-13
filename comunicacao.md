@@ -114,7 +114,7 @@
 
 #### 6. Divirta-se:
 
-"_Quem Canta seus  males espanta_!" - Carmen Miranda 
+"_Preste muita atenção na vida e divirta-se com os detalhes..._" - Oscar de Jesus Klemz
 
 <p align="center">
 <img src="https://i0.wp.com/direcionalescolas.com.br/wp-content/uploads/2018/05/fique-de-olho-diversao-entretenimento.jpg?fit=750%2C406&ssl=1" width="500"/>
